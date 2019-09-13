@@ -21,3 +21,5 @@ ImDora - Actually a chill fucking guy now. Very respectable and nice and funny m
 Spec Official - Makes good bypasses, and is a nice guy in-general.
 
 Leo101 - Made good anticheats back when he still played/coded for Minecraft Servers. Great guy all around and very nice taught me a' lot of stuff when I couldn't do anything correctly.
+
+_Real - learned how to actually code, and is a pretty nice guy.
