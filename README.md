@@ -19,3 +19,5 @@ Dewfs - Says you cant bypass agc so he disables all bans for check so he can ban
 ImDora - Actually a chill fucking guy now. Very respectable and nice and funny much love for this guy hes a great manager <3
 
 Spec Official - Makes good bypasses, and is a nice guy in-general.
+
+Leo101 - Made good anticheats back when he still played/coded for Minecraft Servers. Great guy all around and very nice taught me a' lot of stuff when I couldn't do anything correctly.
